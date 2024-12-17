@@ -1,4 +1,4 @@
 ### Hi there 👋
 
-- I renamed my account to [_**github.com/tanishq-singh-2407.**_](https://github.com/tanishq-singh-2407)
+- I got two github account [_**oyetanishq (main)**_](https://github.com/oyetanishq), and this one.
 - My folio [_**tanishqsingh.com**_](http://tanishqsingh.com)
